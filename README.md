@@ -1,2 +1,2 @@
-## Hi, I'm Abdumalik Bahritdinov👋
+## Hi, I'm Abdumalik Baxritdinov👋
 
